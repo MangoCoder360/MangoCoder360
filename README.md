@@ -3,14 +3,14 @@ MangoCoder360/MangoCoder360 is a ✨ special ✨ repository because its `README.
 You can click the Preview link to take a look at your changes.
 --->
 # Hi.
-# YOU SHOULD DEFINETLY DOWNLOAD MY GAME RIGHT NOW
+# YOU SHOULD DEFINETLY PLAY MY GAME RIGHT NOW
 
-https://play.google.com/store/apps/details?id=com.ReubenSchiopu.BlockCatcher
+https://cuberacers.reubenschiopu.com/
 
-https://play.google.com/store/apps/details?id=com.ReubenSchiopu.BlockCatcher
+https://cuberacers.reubenschiopu.com/
 
-https://play.google.com/store/apps/details?id=com.ReubenSchiopu.BlockCatcher
+https://cuberacers.reubenschiopu.com/
 
-https://play.google.com/store/apps/details?id=com.ReubenSchiopu.BlockCatcher
+https://cuberacers.reubenschiopu.com/
 
-https://play.google.com/store/apps/details?id=com.ReubenSchiopu.BlockCatcher
+https://cuberacers.reubenschiopu.com/
